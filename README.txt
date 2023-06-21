@@ -1,4 +1,3 @@
-ChatGPT
 
 🍦🌟 Delícias Geladas: Derreta-se de prazer com nossas sobremesas geladas! 🌟🍦
 
